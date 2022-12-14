@@ -1,0 +1,1 @@
+# KartaPracy6-6a
